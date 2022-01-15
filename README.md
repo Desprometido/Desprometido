@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Desprometido
+- 👀 I’m interested in Skyrim, and games in general.
+- 📫 How to reach me: Desprometido#6610 on discord.
